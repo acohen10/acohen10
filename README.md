@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @acohen10
+- 👀 I’m interested in learning collaborative skills and working with others through the power of social media and technology. 
+- 🌱 I’m currently learning finance, accounting, marketing, management, and much more. 
+- 💞️ I’m looking to collaborate on gorup projects and skills. 
+- 📫 How to reach me- via email upon request. 
